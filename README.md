@@ -1,0 +1,1 @@
+# SpreadTech_Solutions_Machine_Learning_Intership_Solutions
